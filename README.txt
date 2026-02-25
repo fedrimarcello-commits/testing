@@ -1,2 +1,1 @@
-ini adalah akuuu
-
+535250010 Vincent Joseph Putra
