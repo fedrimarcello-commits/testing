@@ -1,2 +1,1 @@
-ini adalah akuuu
-
+Fedri Marcello 535250052
